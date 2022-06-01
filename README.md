@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @RealMaggi
+- Just using this for UNI-projects
+- Reach me: @hsw-stud.de
